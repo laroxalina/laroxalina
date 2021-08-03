@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @laroxalina, i'm an audiovisual magic creature. I write, I photograph, I edit. 
-- 👀 I’m interested in pop culture, art and women's history.
+- 🌊 Hi, I’m @laroxalina, i'm an audiovisual magic creature. I write, I photograph, I edit. 
+- ✨ I’m interested in pop culture, art and women's history.
 - 🌱 I’m currently learning design. 
-- 💞️ I’m looking to collaborate on blogging. 
+- 🎂 I’m looking to collaborate on blogging. 
 - 📫 How to reach me laroxchalina@gmail.com 
 
 <!---
