@@ -1,8 +1,8 @@
 - 🌊 Hi, I’m @laroxalina, i'm an audiovisual magic creature. I write, I photograph, I edit. 
 - ✨ I’m interested in pop culture, art and women's history.
-- 🌱 I’m currently learning design. 
-- 🎂 I’m looking to collaborate on blogging. 
-- 📫 How to reach me laroxchalina@gmail.com 
+- 🌱 I’m currently growing as a blog editor. 
+- 🎂 I’m looking to collaborate more on digital writing. 
+- 📫 Reach out to me at laroxchalina@gmail.com 
 
 <!---
 laroxalina/laroxalina is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
